@@ -3,6 +3,7 @@
  Conocimiento y comprensión de la infraestructura de Facebook.
  
  ➡ CLICK EN EL SIGUEINTE ENLACE PARA HACKEAR UN FACEBOOK GRATIS Y ONLINE
+ 
  ➡ https://hackeator.org/hack/facebook/
 
 Hackear las cuentas de Facebook y las claves de las cuentas es algo muy es complicado. Somos un conjunto de alumnos de programa que perfeccionan sus capacidades de hacking hackeando Facebook, las claves de las cuentas a petición, de manera libre y gratuita.
@@ -17,6 +18,7 @@ Hackear las cuentas de Facebook y las claves de las cuentas es algo muy es compl
 >Hackear cuentas y claves de Facebook en línea –
  
   ➡ CLICK EN EL SIGUEINTE ENLACE PARA HACKEAR UNA CUENTA FACEBOOK SIN PAGA
+ 
  ➡ https://hackeator.org/hack/facebook/
  
  
